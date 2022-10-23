@@ -4,7 +4,7 @@ Hi, im federal this is my github profile!
 
 <h3>i own these two sites :) </h3>
 
-https://terror.sh (friendgroup website)
+https://terror.sh 
 
 https://lnks.wtf 
 
