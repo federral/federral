@@ -6,7 +6,7 @@ Hi, im federal this is my github profile!
 
 https://terror.sh (friendgroup website)
 
-https://lnks.wtf (based off of 66biolinks)
+https://lnks.wtf 
 
 
 
